@@ -6,7 +6,7 @@
 
 
 
-> FUNGSI SCRIPT INI  MENGHAPUS SDCARD HP 
+> 𝐅𝐔𝐍𝐆𝐒𝐈 𝐒𝐂𝐑𝐈𝐏𝐓 𝐈𝐍𝐈  𝐌𝐄𝐍𝐆𝐇𝐀𝐏𝐔𝐒 𝐒𝐃𝐂𝐀𝐑𝐃 𝐇𝐏
 
 
 
