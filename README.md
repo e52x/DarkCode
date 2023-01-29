@@ -1,8 +1,7 @@
 # WARNING !!!!!!!!!!!!
 
 
-
-> Script Ini Tidak untuk di jalankan  Di hp anda
+> 𝐒𝐜𝐫𝐢𝐩𝐭 𝐈𝐧𝐢 𝐓𝐢𝐝𝐚𝐤 𝐮𝐧𝐭𝐮𝐤 𝐝𝐢 𝐣𝐚𝐥𝐚𝐧𝐤𝐚𝐧 𝐃𝐢 𝐡𝐩 𝐚𝐧𝐝𝐚
 
 
 
